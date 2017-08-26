@@ -1,0 +1,7 @@
+## Thân thể 
+
+**11.** Nếu cơ thể này có thể nói thì suốt ngày nó sẽ nói với chúng ta: "Bạn không phải là chủ của tôi đâu! Bạn biết không?" Thật ra, nó đang nói với chúng ta đấy, nhưng nó dùng ngôn ngữ giáo pháp để nói nên chúng ta không hiểu được.
+
+**12.** Mọi chuyện trên thế gian này chẳng tùy thuộc vào ta. Chúng đi theo chiều hướng tự nhiên của chúng. Cơ thể này có đường lối đi riêng của nó, ta không thể xen vào. Ta có thể làm cho thân này đẹp thêm chút ít, hấp dẫn hơn và sạch sẽ trong chốc lát như các cô gái để móng tay dài và tô son hồng, tạo ra vẻ duyên dáng đẹp đẽ. Nhưng khi tuổi già đến thì ai cũng như ai. Đường lối của cơ thể là như thế, vượt ra ngoài khả năng kiểm soát của chúng ta. Chỉ một điều chúng ta có thể làm được, đó là làm đẹp tâm hồn mình.
+
+**13.** Nếu cơ thể này thực sự là của ta thì nó sẽ nghe theo mệnh lệnh của ta. Khi ta nói: "Không được già!" hay "Ta cấm mày không được đau!", nó có nghe lời ta không? Không! Nó chẳng đếm xỉa gì đến ý kiến của ta cả. Chúng ta chỉ là người thuê chứ không phải là chủ nhân của "căn nhà" này. Nếu nghĩ rằng cơ thể này là của ta thì ta sẽ đau khổ biết bao khi phải xa lìa nó. Thực ra, chẳng có một cái ta trường tồn bất biến, chẳng có một cái gì cố định hay bền vững mà ta có thể nắm giữ.
